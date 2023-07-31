@@ -30,9 +30,9 @@ Submitted to: Asst.Prof.Dr.Preecha Tangworakitthaworn
 
 Sirindhorn International Institute of Technology, Thammasat University
 
-Group Members: 
- **1. Pauruetai Kobsahai 6322770064  
+**Group Members: **
+ 1. Pauruetai Kobsahai 6322770064  
  2. Thanakrit Loetpricha 6322770114 
  3. Chanon Charuchinda 6322770692  
  4. Warangkana Wuttisupasiri 6322770759 
- 5. Tul Tulyapornchote 6322800077**
+ 5. Tul Tulyapornchote 6322800077
